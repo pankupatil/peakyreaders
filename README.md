@@ -12,8 +12,8 @@ So let me ask you, why do you think these people spend their valuable time readi
 Obviously, the answer is **'Knowledge'**. The more you read the more you learn.
 
 ## Advantages of reading books:
-- It reduces stress.
-- It increases knowledge.
-- It increases your vocabulary.
-- It helps you to increase your inner skills and your analytical thinking.
-
+- **It reduces stress.** No matter how much stress you have in your daily life let it be work or your personal life, it all goes away when you read a great novel or a great story. When you are reading a novel or any other book, your subconscious mind starts to relate yourself to the character in the book, you engage yourself with the situations, and you keep reading it. In the end, it helps you to relax and reduces your stress.
+- **It increases knowledge.** “The more that you read, the more things you will know. The more that you learn, the more places you’ll go.” – Dr. Seuss. Every time you read, your head fills with a piece of new information, and you never know when it might come in handy. Knowledge helps you to tackle any challenges you face in your life. 
+- **It increases your vocabulary.** The more you read, the more new words you learn. It just helps you to gain more self-confidence in your professional and personal life.
+- **It helps you to increase your inner skills and your analytical thinking.** “Today a reader, tomorrow a leader.” – Margaret Fuller. We all know that most of the successful people's advice is to READ. A few days ago I finished reading "How to stop worrying and start living by Dale Carnegie". In this book, he mentioned that the best way to change others is to change oneself first. He has given some lessons that how one should approach the problems, how we can tackle most of our worries, and be happy. The bottom line is, your mind starts to engage yourself with the situations and in the end, you start thinking differently. You change your approach to deal with your daily issues.
+- It also helps for better writing skills, focus and concentration, brings positive energy, memory improvement, and lots of other benefits.
