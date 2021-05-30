@@ -9,6 +9,9 @@
 **Elon Musk, Warren Buffet, Bill Gates, Mark Zukerberg, Mark Cuban, and many more successful people have one common habit...**
                                         
 					**_They read a lot_**
+					
+ ![](C:\Users\Admin\Desktop\Blog)
+					
 
    
    
