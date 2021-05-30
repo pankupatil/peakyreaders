@@ -14,4 +14,6 @@ Obviously, the answer is **'Knowledge'**. The more you read the more you learn.
 ## Advantages of reading books:
 - It reduces stress.
 - It increases knowledge.
+- It increases your vocabulary.
+- It helps you to increase your inner skills and your analytical thinking.
 
