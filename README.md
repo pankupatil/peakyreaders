@@ -1,3 +1,4 @@
+
 # peakyreaders
 ## Blog for the readers
  # A reader lives a thousand lives before he dies ... The man who never reads lives only one.
@@ -9,3 +10,8 @@
 So let me ask you, why do you think these people spend their valuable time reading books? They all are super busy than all of us still, they read a lot...
 
 Obviously, the answer is **'Knowledge'**. The more you read the more you learn.
+
+## Advantages of reading books:
+- It reduces stress.
+- It increases knowledge.
+
