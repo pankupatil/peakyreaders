@@ -7,7 +7,7 @@
 
 **Elon Musk, Warren Buffet, Bill Gates, Mark Zukerberg, Mark Cuban, and many more successful people have one common habit...**
                                         
-					_They read a lot_
+					**_They read a lot_**
 
 
 - **Elon Musk** the real-life Iron Man was once asked how he learned to build rockets, he says 'I read books. Elon Musk is the billionaire and brilliant mind behind Tesla and SpaceX. Imagine how busy his schedule is..! Still, he carves his time for reading.
@@ -52,4 +52,4 @@ So Guys, grab a book and start reading...
 
                                                    **>> Happy Reading >>**
 												   
-												                             Written by - Pankaj Patil
+												              **Written by - Pankaj Patil**
