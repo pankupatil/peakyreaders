@@ -6,7 +6,8 @@
 ### A reader lives a thousand lives before he dies ... The man who never reads lives only one. -  George R.R. Martin
 
 **Elon Musk, Warren Buffet, Bill Gates, Mark Zukerberg, Mark Cuban, and many more successful people have one common habit...**
-                          **_They read a lot...**_
+                                        
+										_They read a lot__
 
 
 - **Elon Musk** the real-life Iron Man was once asked how he learned to build rockets, he says 'I read books. Elon Musk is the billionaire and brilliant mind behind Tesla and SpaceX. Imagine how busy his schedule is..! Still, he carves his time for reading.
