@@ -10,7 +10,8 @@
                                         
 					**_They read a lot_**
 
- ![](https://www.pexels.com/photo/selective-focus-photography-of-woman-holding-book-373465/)
+ ![](pexels-leah-kelley-373465)
+ 
 
    
    
