@@ -1,5 +1,5 @@
 
-# peakyreaders - Blog for readers: **By - Pankaj Patil**
+# peakyreaders - Blog for readers
 
 ## Why successful people read more books and you should too >>
 
@@ -7,7 +7,7 @@
 
 **Elon Musk, Warren Buffet, Bill Gates, Mark Zukerberg, Mark Cuban, and many more successful people have one common habit...**
                                         
-										_They read a lot__
+					_They read a lot_
 
 
 - **Elon Musk** the real-life Iron Man was once asked how he learned to build rockets, he says 'I read books. Elon Musk is the billionaire and brilliant mind behind Tesla and SpaceX. Imagine how busy his schedule is..! Still, he carves his time for reading.
@@ -51,3 +51,5 @@ Obviously, the answer is **'Knowledge'**. The more you read the more you learn.
 So Guys, grab a book and start reading...
 
                                                    **>> Happy Reading >>**
+												   
+												                             Written by - Pankaj Patil
