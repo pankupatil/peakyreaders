@@ -10,7 +10,8 @@
                                         
 					**_They read a lot_**
 
-   ![](/https://images.pexels.com/photos/373465/pexels-photo-373465.jpeg?auto=compress&cs=tinysrgb&dpr=1&w=500)
+ ![](https://www.pexels.com/photo/selective-focus-photography-of-woman-holding-book-373465/)
+
    
    
 - **Elon Musk** the real-life Iron Man was once asked how he learned to build rockets, he says 'I read books. Elon Musk is the billionaire and brilliant mind behind Tesla and SpaceX. Imagine how busy his schedule is..! Still, he carves his time for reading.
