@@ -9,14 +9,12 @@
 
 
 
-**Elon Musk, Warren Buffet, Bill Gates, Mark Zukerberg, Mark Cuban, and many more successful people have one common habit...**
+#### Elon Musk, Warren Buffet, Bill Gates, Mark Zukerberg, Mark Cuban, and many more successful people have one common habit...**
                                         
 					**_They read a lot_**
 					
- ![image ](https://images.pexels.com/photos/373465/pexels-photo-373465.jpeg?cs=srgb&dl=pexels-leah-kelley-373465.jpg&fm=jpg)
-					
    
-   
+  
 - **Elon Musk** the real-life Iron Man was once asked how he learned to build rockets, he says 'I read books. Elon Musk is the billionaire and brilliant mind behind Tesla and SpaceX. Imagine how busy his schedule is..! Still, he carves his time for reading.
 
 - **Warren Buffet** spends 80% of his day reading. He doesn't limit his knowledge to books alone. He also reads six newspapers a day. When Warren Buffet was once asked about the key to success, he said read 500 pages like this every day. That's how knowledge works
@@ -28,6 +26,9 @@
 So let me ask you, why do you think these people spend their valuable time reading books? They all are super busy than all of us still, they read a lot...
 
 Obviously, the answer is **'Knowledge'**. The more you read the more you learn.
+
+ ![image ](https://images.pexels.com/photos/590493/pexels-photo-590493.jpeg?cs=srgb&dl=pexels-janko-ferlic-590493.jpg&fm=jpg)
+ 
 
 ### You must be thinking, what can I gain by reading books? Let me tell you few advantages of reading books:
 
@@ -53,6 +54,9 @@ Obviously, the answer is **'Knowledge'**. The more you read the more you learn.
 
 - **Finish every book you read.** The second principle of Bill Gates is 'get to the end'. Finish one book before you start another one.
 
+
+ ![image ](https://images.pexels.com/photos/415071/pexels-photo-415071.jpeg?cs=srgb&dl=pexels-pixabay-415071.jpg&fm=jpg)
+ 
 ## "Reading is essential for those who seek to rise above the ordinary.”   – Jim Rohn
 
 So Guys, grab a book and start reading...
