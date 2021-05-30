@@ -12,7 +12,6 @@
 					
  ![](C:\Users\Admin\Desktop\Blog)
 					
-
    
    
 - **Elon Musk** the real-life Iron Man was once asked how he learned to build rockets, he says 'I read books. Elon Musk is the billionaire and brilliant mind behind Tesla and SpaceX. Imagine how busy his schedule is..! Still, he carves his time for reading.
